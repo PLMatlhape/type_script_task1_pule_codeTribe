@@ -1,0 +1,1 @@
+# type_script_task1_pule_codeTribe
